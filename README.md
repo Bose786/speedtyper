@@ -1,1 +1,1 @@
-# speedtyper
+# bose786.speedtyper
